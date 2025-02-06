@@ -11,7 +11,7 @@
 
 [Wallhaven](https://wallhaven.cc/)
 
-[GruvBox Wallpapers](https://gruvbox-wallpapers.pages.dev/)
+##[GruvBox Wallpapers](https://gruvbox-wallpapers.pages.dev/)
 ------
 
 ## Some of these wallpapers are from artists i follow personally 
