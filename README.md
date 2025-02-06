@@ -9,7 +9,7 @@
 
 ## I get most of them from wallhaven
 
-[Wallhaven](https://wallhaven.cc/)
+[Wallhaven](https://wallhaven.cc/) ||
 [GruvBox Wallpapers](https://gruvbox-wallpapers.pages.dev/)
 ------
 
