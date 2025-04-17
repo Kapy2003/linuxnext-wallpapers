@@ -30,6 +30,10 @@
 
 [Ozone](https://x.com/ozanuki)
 
+[duke](https://x.com/DukePaints)
+
+[Victor Ullmann](https://x.com/victorullmannn)
+
 -------
 ## I also use upscaler to upscale the images 🐧
 
@@ -159,6 +163,13 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/cc37e9339925e829a3db263cdc70142dd99bea8f/Illustrations/wallhaven-qzx2dd.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/wallhaven-5g17z9.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/wallhaven-dplw33.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/GhRcDYBW4AAAP0b.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/GhRcE9OWUAEuq7y.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/GhRcGbpXoAESXZv.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/GhRcJW4XgAATjSd.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/Gjl4z8RXIAACP36.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/GoquLu-WAAA-aze.jpg)
+
 
 
 ## ✨PIXEL ART✨
