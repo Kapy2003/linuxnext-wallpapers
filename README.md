@@ -28,6 +28,8 @@
 
 [Marathon Joseph Cross](https://x.com/josephacross?t=txQlbn47CHc11aJl5XtzsQ&s=09)
 
+[Ozone](https://x.com/ozanuki)
+
 -------
 ## I also use upscaler to upscale the images 🐧
 
