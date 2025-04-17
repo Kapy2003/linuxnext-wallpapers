@@ -108,6 +108,8 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/runnerded.png)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/nocat.png)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/9XV1dSy.jpeg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/20250417_115953.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/20250417_120010.jpg)
 
 ## 🦹‍♀️HERO'S & VILLAIN'S🦹‍♂️
 
@@ -142,6 +144,7 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/GdyNEErbQAAgrbL-1124x321-upscaled.png)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/GdyMPdKb0AAODu4-1116x344-upscaled.png)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/wallhaven-yxqx9g-3840x2160-upscaled.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/20250417_120050.jpg)
 
 ## 🖌️ILLUSTRATIONS🖌️
 
@@ -206,6 +209,8 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/wallhaven-r2wyk1.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/wallhaven-x6pm5o.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/wallhaven-3l5gx6.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/20250417_115941.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/20250417_120054.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/wallhaven-8515yj.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/wallhaven-85ry7y.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/wallhaven-d67q23.png)
