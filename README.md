@@ -114,6 +114,7 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/9XV1dSy.jpeg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/20250417_115953.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/20250417_120010.jpg)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/doom%20dark%20ages%20upscaled.jpg)
 
 ## 🦹‍♀️HERO'S & VILLAIN'S🦹‍♂️
 
