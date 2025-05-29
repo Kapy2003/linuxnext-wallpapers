@@ -34,6 +34,8 @@
 
 [Victor Ullmann](https://x.com/victorullmannn)
 
+[2204Design](https://x.com/2204Design)
+
 -------
 ## I also use upscaler to upscale the images 🐧
 
