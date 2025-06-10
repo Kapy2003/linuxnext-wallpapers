@@ -153,6 +153,7 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/GdyMPdKb0AAODu4-1116x344-upscaled.png)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/wallhaven-yxqx9g-3840x2160-upscaled.png)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/20250417_120050.jpg)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/1092421-1831168321.jpg)
 
 ## 🖌️ILLUSTRATIONS🖌️
 
