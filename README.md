@@ -36,6 +36,10 @@
 
 [2204Design](https://x.com/2204Design)
 
+[DrGoosethumb](https://x.com/DrGoosethumb)
+
+[Icemarv14](https://x.com/icemarv14)
+
 -------
 ## I also use upscaler to upscale the images 🐧
 
