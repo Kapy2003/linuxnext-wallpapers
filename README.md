@@ -27,6 +27,20 @@
 
 [Melospiza0606](https://x.com/melospiza0606?t=J2sH4Vhu-tEmS3LujBDEew&s=09)
 
+[Marathon Joseph Cross](https://x.com/josephacross?t=txQlbn47CHc11aJl5XtzsQ&s=09)
+
+[Ozone](https://x.com/ozanuki)
+
+[duke](https://x.com/DukePaints)
+
+[Victor Ullmann](https://x.com/victorullmannn)
+
+[2204Design](https://x.com/2204Design)
+
+[DrGoosethumb](https://x.com/DrGoosethumb)
+
+[Icemarv14](https://x.com/icemarv14)
+
 -------
 ## I also use upscaler to upscale the images 🐧
 
@@ -34,7 +48,7 @@
 
 -------
 
-## If you are reading this and your art is in this repo, consider telling me by opening a issue so i can either remove it or give credit to you in this description :)
+## If you are reading this, and your art is in this repo, consider telling me by opening a issue, so i can either remove it or give credit to you in this description :)
 
 --------
                         
@@ -51,6 +65,9 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Abstract/wallhaven-g75wvd.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Abstract/wallhaven-zywdlv.png)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/38d6ea1d0c162ffd3c00fbe9233154eaed8a5322/Abstract/wallhaven-yxpkvg.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Abstract/wallhaven-jx2rxw.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Abstract/wallhaven-kw318d.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Abstract/wallhaven-6dv99x.png)
 
 
 ## 🎮GAMES🎮
@@ -93,6 +110,25 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/20241222_134131.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/20241222_134203.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/20241222_134122.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/GnpZoe3aMAQpKSp-1600x670-upscaled.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/Gn4vh8nbkAAL1Aj-1999x773-upscaled.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/keep-those-dacs-handy-the-time-for-pushing-is-almost-upon-us-v0-au8rke5wq0te1.jpeg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/cat1.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/cat2.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/cat3.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/runnerded.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/nocat.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/9XV1dSy.jpeg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/20250417_115953.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Games/20250417_120010.jpg)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/doom%20dark%20ages%20upscaled.jpg)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/weau4utitj3f1.jpeg)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/Gl4Q241XIAAxxQZ.jpg)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/GoMkmXGXIAAnfrH.jpg)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/GqmUlrzWwAAGR0M.jpg)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/GrgBq7QXgAAxahF.jpg)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/GsZPVT3XUAAzzxC.jpg)
+
 
 ## 🦹‍♀️HERO'S & VILLAIN'S🦹‍♂️
 
@@ -126,6 +162,9 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/cc37e9339925e829a3db263cdc70142dd99bea8f/Hero%20%26%20Villains/wallhaven-p9egqj.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/GdyNEErbQAAgrbL-1124x321-upscaled.png)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/GdyMPdKb0AAODu4-1116x344-upscaled.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/wallhaven-yxqx9g-3840x2160-upscaled.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/20250417_120050.jpg)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/1092421-1831168321.jpg)
 
 ## 🖌️ILLUSTRATIONS🖌️
 
@@ -138,6 +177,15 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/cc37e9339925e829a3db263cdc70142dd99bea8f/Illustrations/wallhaven-jxzvwy.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/cc37e9339925e829a3db263cdc70142dd99bea8f/Illustrations/wallhaven-kxv9rd.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/cc37e9339925e829a3db263cdc70142dd99bea8f/Illustrations/wallhaven-qzx2dd.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/wallhaven-5g17z9.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/wallhaven-dplw33.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/GhRcDYBW4AAAP0b.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/GhRcE9OWUAEuq7y.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/GhRcGbpXoAESXZv.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/GhRcJW4XgAATjSd.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/Gjl4z8RXIAACP36.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/GoquLu-WAAA-aze.jpg)
+
 
 
 ## ✨PIXEL ART✨
@@ -174,6 +222,10 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Vehicles/wallhaven-we9vrx.png)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Vehicles/wallhaven-vqkvr3.png)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Vehicles/wallhaven-2ymw56.png)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Vehicles/11835408.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Vehicles/wallhaven-jxm2e5.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Vehicles/wp9096556-4k-rally-wallpapers.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Vehicles/wp9330928-rally-4k-wallpapers.jpg)
 
 ## 📱Mobile📱
 
@@ -184,6 +236,8 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/wallhaven-r2wyk1.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/wallhaven-x6pm5o.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/wallhaven-3l5gx6.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/20250417_115941.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/20250417_120054.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/wallhaven-8515yj.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/wallhaven-85ry7y.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/wallhaven-d67q23.png)
@@ -204,3 +258,5 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/20241222_134228.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/20241222_134259.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/20241222_134429.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/20250411_135935.jpg)
+![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Mobile/20250411_135926.jpg)
